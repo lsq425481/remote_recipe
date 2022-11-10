@@ -1,4 +1,4 @@
-* 2 avacados
+* 2 avacado
 * 1 lime
 * 2 tsp salt
 1/2 onion
